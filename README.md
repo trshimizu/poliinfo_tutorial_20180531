@@ -1,4 +1,4 @@
 # poliinfo_tutorial_20180531
 
 ### 説明資料
-* https://www.dropbox.com/s/z77k6yk4yuzoie9/poliinfo_tutorial_20180531.pdf?dl=1
+* https://1drv.ms/b/s!AguvnfZwI81sgpV1hT-L-qQnBBFa2g?e=eiv2kB
